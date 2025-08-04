@@ -1,3 +1,5 @@
-# Suraj-
-Induction programme 
-### Day1 (30th of july)
+# Induction programme 
+Suraj parshad electrical engineering 
+
+# Day1
+###(30th of july)
